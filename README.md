@@ -1,1 +1,0 @@
-# s34168-pja.github.io
